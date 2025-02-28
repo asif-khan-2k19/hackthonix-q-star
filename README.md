@@ -1,1 +1,0 @@
-# hackthonix-q-star
